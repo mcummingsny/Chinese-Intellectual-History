@@ -4,17 +4,17 @@ Lecture One: _Sources of Chinese Tradition, Volume 1: From Earliest Times to 160
 
 Lecture Two, Confucius: 
 
-Lecture Two, Mencius:
+Lecture Two, Mencius: _Mencius_. Translated by D. C. Lau (Harmondsworth, 1970)
 
-Lecture Two: Xunzi 
+Lecture Two: Xunzi: _Hsun-tzu, Basic Writings_. Translated by Burton Watson (New York, 1963) 
 
-Lecture Three: Shang Yang
+Lecture Three: Shang Yang: _The Book of Lord Shang, Apologetics of State Power in Early China_. Edited and translated by Yuri Pines (New York, 2019)
 
 Lecture Threee: Han Fei
 
 Lecture Four: Laozi
 
-Lecture Four: Zhuangzi
+Lecture Four: Zhuangzi: _Chuang-tzu, Basic Writings_. Translated by Burton Watson (New York, 1964)
 
-Lecture Five: Huainanzi
+Lecture Five: Huainanzi: _The Essential Huainanzi_. Edited and translated by John S. Major, et al. (New York, 2012)
 
