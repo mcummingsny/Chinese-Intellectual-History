@@ -10,7 +10,7 @@ Lecture Two: Xunzi: _Hsun-tzu, Basic Writings_. Translated by Burton Watson (New
 
 Lecture Three: Shang Yang: _The Book of Lord Shang, Apologetics of State Power in Early China_. Edited and translated by Yuri Pines (New York, 2019)
 
-Lecture Threee: Han Fei
+Lecture Three: Han Fei
 
 Lecture Four: Laozi
 
