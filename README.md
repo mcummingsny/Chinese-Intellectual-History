@@ -6,7 +6,7 @@ Lecture Two, Confucius:
 
 Lecture Two: Mencius: _Mencius_. Translated by D. C. Lau (Harmondsworth, 1970)
 
-Lecture Two: Xunzi: _Hsun Tzu_, Basic Writings_. Translated by Burton Watson (New York, 1963) 
+Lecture Two: Xunzi: _Hsun Tzu, Basic Writings_. Translated by Burton Watson (New York, 1963) 
 
 Lecture Three: Shang Yang: _The Book of Lord Shang, Apologetics of State Power in Early China_. Edited and translated by Yuri Pines (New York, 2019)
 
