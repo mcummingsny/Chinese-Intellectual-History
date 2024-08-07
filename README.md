@@ -12,7 +12,7 @@ Lecture Three: Shang Yang: _The Book of Lord Shang, Apologetics of State Power i
 
 Lecture Three: Han Fei: _Han Fei Tzu, Basic Writings_.  Translated by Burton Watson (New York 1964)
 
-Lecture Four: Laozi
+Lecture Four: Laozi: _Lao Tzu Tao Te Ching_.  Translated by D.C. Lau (Harmondsworth, 1963)
 
 Lecture Four: Zhuangzi: _Chuang Tzu, Basic Writings_. Translated by Burton Watson (New York, 1964)
 
