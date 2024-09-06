@@ -10,5 +10,5 @@ Documents included in this repository are brief excerpts from the texts associat
 
 **Lecture Four:** _Lao Tzu Tao Te Ching_. Translated by D.C. Lau (Harmondsworth, 1963); _Chuang Tzu, Basic Writings_. Translated by Burton Watson (New York, 1964)
 
-**Lecture Five:** Huainanzi: _The Essential Huainanzi_. Edited and translated by John S. Major, et al. (New York, 2012)
+**Lecture Five:** Huainanzi: _The Essential Huainanzi_. Edited and translated by John S. Major, et al. (New York, 2012); _Luxuriant Gems of the Spring and Autumn_. Edited and translated by Sarah Queen and John Major (New York, 2016)
 
