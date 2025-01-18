@@ -1,5 +1,5 @@
 **[Chinese Buddhism]**
-Files for this course, spring of 2025, are included above.
+Materials for this course, spring of 2025, are included in a separate repository, Foundations of Chinese Intellectual History Part II-Chinese Buddhism.
 
 
 **[Foundations of Chinese Intellectual History]**
