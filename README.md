@@ -1,9 +1,9 @@
-**[Chinese Buddhism]**
-Materials for this course, spring of 2025, are included in a separate repository, Foundations of Chinese Intellectual History Part II-Chinese Buddhism.
+**[Note on Chinese Buddhism Course, Spring 2025]**
+Materials for this course, spring of 2025, are included in a separate repository, Foundations of Chinese Intellectual History Part II-Chinese Buddhism. To access readings for that course, click on"mcummingsny" in the file path at the top of the page and choose the repository beginning with the words "Foundations of Chinese Intellectual History."
 
 
-**[Foundations of Chinese Intellectual History]**
-Documents included here are brief excerpts from the texts associated with the principal thinkers and teachers discussed in the spring and fall classes of 2024.  The excerpts will give you something of the flavor of their thought, but if you are interested, you will probably want to go on and read more.  Below I have listed a few authoritative translations of these texts.  
+**Foundations of Chinese Intellectual History**
+Documents included above are brief excerpts from the texts associated with the principal thinkers and teachers discussed in the spring and fall classes of 2024.  The excerpts will give you something of the flavor of their thought, but if you are interested, you will probably want to go on and read more.  Below I have listed a few authoritative translations of these texts.  
 
 Be sure to consult the Ready Reference Lists (above) for brief identifications of important persons, texts, and historical epochs discussed in the lectures. 
 
