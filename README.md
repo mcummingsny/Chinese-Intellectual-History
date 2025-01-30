@@ -1,5 +1,5 @@
 **[Note on Chinese Buddhism Course, Spring 2025]**
-Materials for this course are included in a separate repository. To access readings for that course, click on"mcummingsny" in the file path at the top of this page and choose the repository named "Chinese Buddhism."
+Materials for the course on Chinese Buddhism are included in a separate repository. To access readings for that course, click on"mcummingsny" in the file path at the top of this page and choose the repository named "Chinese Buddhism."
 
 
 **Foundations of Chinese Intellectual History**
